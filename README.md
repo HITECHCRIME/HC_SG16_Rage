@@ -20,6 +20,6 @@ You don't know it all
 
 Wrecked with my own ball
 
-
+"in order to obtain the impossible one must attempt the absurd"
 
 
